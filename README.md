@@ -5,3 +5,5 @@ solution tu mil gya hai, socha try ker lon
 
 sai hai data me kr rhu kaam
 kia bna solution ka
+send kro
+send kro
